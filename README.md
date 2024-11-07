@@ -43,40 +43,93 @@
 ### resultado:
 
 ### 8.
+![image](https://github.com/user-attachments/assets/b46ff4f4-e5d8-4ac7-8012-4020b01ddd3f)
+
 ### resultado:
+![image](https://github.com/user-attachments/assets/1b93672e-f998-40c6-8984-95ecbd0e6669)
+
 
 ### 9.
+![image](https://github.com/user-attachments/assets/9915debb-2251-4894-ace9-2bb2768dad6e)
+
 ### resultado:
+![image](https://github.com/user-attachments/assets/2acdda98-34b1-460c-bdfb-e818eef63905)
+
 
 ### 10.
+![image](https://github.com/user-attachments/assets/e1000171-af6a-4f0b-9cf7-5927e8d08d4e)
+
 ### resultado:
+![image](https://github.com/user-attachments/assets/23beae67-9152-4d14-ada4-cff35c15417d)
+
 
 ### 11.
+![image](https://github.com/user-attachments/assets/8fd971f8-48d4-4d1f-8dfc-5f04bee1bf66)
+
 ### resultado:
+![image](https://github.com/user-attachments/assets/51a10109-2d3c-400e-91f7-58533a8dbd83)
+
 
 ### 12.
+![image](https://github.com/user-attachments/assets/29641748-4390-4a6d-9c31-4685f8e846bb)
+
 ### resultado:
+![image](https://github.com/user-attachments/assets/41430f0c-4d69-4041-83be-fa381aac88b7)
+
 
 ### 13.
+![image](https://github.com/user-attachments/assets/b63dc943-b93b-4638-a980-a6370c8ccd9c)
+
 ### resultado:
+![image](https://github.com/user-attachments/assets/b173cfed-d5a6-4289-981c-85e214be7fde)
+
 
 ### 14.
+![image](https://github.com/user-attachments/assets/53bd6a6d-d763-42e2-9fcd-1b3ab26e33c2)
+
 ### resultado:
+![image](https://github.com/user-attachments/assets/9147307b-6b50-4c6d-8753-bb9199bbcf59)
+
 
 ### 15.
+![image](https://github.com/user-attachments/assets/272fa28d-9512-4c76-82a0-b54a8122410f)
+
 ### resultado:
+![image](https://github.com/user-attachments/assets/0e095fad-0473-46e2-8d8e-1200f83eaa33)
+
 
 ### 16.
+![image](https://github.com/user-attachments/assets/3709ff17-cf97-430d-8e5c-042fdd435e5d)
+
+
 ### resultado:
+![image](https://github.com/user-attachments/assets/e059ec96-c697-4cc5-8807-843e1cafda24)
+
 
 ### 17.
+![image](https://github.com/user-attachments/assets/eac9a832-b48f-45f7-9dc8-0e5cc14911a6)
+
 ### resultado:
+![image](https://github.com/user-attachments/assets/3bb3600d-52d1-4b4d-90a6-b5e3eff1760a)
+
 
 ### 18.
+![image](https://github.com/user-attachments/assets/26b48922-127a-417c-b811-98de440bc400)
+
 ### resultado:
+![image](https://github.com/user-attachments/assets/f2b1af04-9202-40f5-b1ad-c3358c3eb46a)
+
 
 ### 19.
+![image](https://github.com/user-attachments/assets/d2d854f9-c7f3-46ff-9463-45bcdc2bd2e1)
+
+
 ### resultado:
+![image](https://github.com/user-attachments/assets/09dc4687-2cf9-48fc-9303-693d2fec481d)
 
 ### 20.
+![image](https://github.com/user-attachments/assets/512c52b3-aa6b-487c-bf72-e1ed3ddfb8fe)
+
 ### resultado:
+![image](https://github.com/user-attachments/assets/f526faca-bb77-471f-8637-0fdce68c8a7c)
+
